@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **ReactJS, MEARN**
 
-- 📫 How to reach me **nroduc.contact@gmail.com**
+- 📫 How to reach me **2251018005@e.tlu.edu.vn**
 
 - ⚡ Fun fact **I think I am funny**
 
